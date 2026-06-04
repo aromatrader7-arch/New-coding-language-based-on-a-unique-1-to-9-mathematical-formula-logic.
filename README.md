@@ -10,3 +10,4 @@ An analytical overview of an unbreakable cryptographic architecture based on a u
 * **Open for Professional Collaboration:** 
 ## Contact & Collaboration
 For professional inquiries, technical 
+Email: aromatrader7@gmail.com 
